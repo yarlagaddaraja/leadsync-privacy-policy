@@ -29,5 +29,5 @@ Information is retained only as needed for the project's lead management and dem
 ## 7. Contact Us
 For questions about this Privacy Policy, contact:
 
-**Email:** [YOUR EMAIL ADDRESS]
+**Email:** [rajayarlagadda056@gmail.com]
 
